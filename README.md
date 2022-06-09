@@ -1,1 +1,0 @@
-kidaurumahrendi.github.io
